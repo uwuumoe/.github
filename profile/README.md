@@ -1,1 +1,1 @@
-this is like a domain where i host stuff yeah and i might make some stuff and publish it in this org too
+https://uwuu.moe is like a domain where i host stuff uhh and i might make some stuff and host it there and publish it here
